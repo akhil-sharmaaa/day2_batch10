@@ -1,1 +1,1 @@
-i have started new batch in fynd batch number is 10
+i have started new batch in fynd acadmey and batch number is 10
